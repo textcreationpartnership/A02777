@@ -34,9 +34,35 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-The trimming of Thomas Nashe Gentleman, by the high-tituled patron Don Richardo de Medico campo, bar
+
+1. To the Learned.
+
+1. To the simple.
+
+1. To the Gentle Reader.
+
 #####Body#####
-The trimming of Thomas Nashe Gentleman, by the high-tituled patron Don Richardo de Medico campo, bar
+
+1. The trimming of Thomas Nashe.
+
+1. To the polypragmaticall, parasitupocriticall,
+and pantophainouden deconticall Puppie
+Thomas Nashe, Richard Leichfield wisheth
+the continuance of that he hath: that is,
+that he want not the want of health, wealth,
+and libertie.
+YOu see howe louingly I deale with you in my Epistle
+and tell of your vertues, which (God forgiue
+me
+1. A Grace in the behalfe of Thomas Nashe.
+But Tom, thy selfe art past grace: for some of thyne
+owne faction, enuying thy proficiencie and hono
+1. A Grace in the behalfe of Thomas Nashe, to the right
+wo•sh•pfull and grand Commander of all the superrants &
+sub•ercubants of Englands great Metropolis, the Prou•st
+Marshall of London.
+Thus (curteous Gentlemen) I haue brought you •o
+the ende of his trimming, though he be not so curiou
 **Types of content**
 
   * There are 10 **verse** lines!
